@@ -7,3 +7,4 @@ Dafür müsste ich ersteinmal meinen lieblings film kennen. Der letzt Film welch
 * warrior
 * thinker
 > hodl strong
+<img src="https://clipground.com/images/leonidas-png-1.jpg"/>
