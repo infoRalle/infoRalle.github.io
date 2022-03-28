@@ -6,3 +6,4 @@ Dafür müsste ich ersteinmal meinen lieblings film kennen. Der letzt Film welch
 * father
 * warrior
 * thinker
+> hodl strong
